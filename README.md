@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @samyak113
 - 👀 I’m interested in ... playing games and love to trading
-- 🌱 I’m currently learning ... bsc. in mathematics
+- 🌱 I’m currently learning ... Done bsc. in mathematics
 - 💞️ I’m looking to collaborate on ...no one
 - 📫 How to reach me ...by one insta video
 
